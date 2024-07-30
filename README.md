@@ -53,5 +53,5 @@ With a passion for tech and a drive for innovation, I transitioned from an admin
 ## ⚡ Fun Fact
 When I´m not coding, I love to draw and study illustration as a hobby. I also enjoy hiking, yoga and day trips :)
 
-When I'm not coding, I love exploring nature trails and experimenting with new recipes in the kitchen!
+
 
